@@ -2,6 +2,7 @@
 ![](https://osu.ppy.sh/ss/14036926/3709)
 
 # [azerino](https://pajwojskin.s-ul.eu/RvyYiGc8)
+![](https://osu.ppy.sh/ss/14036931/9acf)
 
 # [bubbleman](https://pajwojskin.s-ul.eu/Z2fNjBjs)
 ![](https://osu.ppy.sh/ss/14036929/0cbf)
