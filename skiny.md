@@ -4,6 +4,7 @@
 # [azerino](https://pajwojskin.s-ul.eu/RvyYiGc8)
 
 # [bubbleman](https://pajwojskin.s-ul.eu/Z2fNjBjs)
+![](https://osu.ppy.sh/ss/14036929/0cbf)
 
 # [chitanda blue](https://pajwojskin.s-ul.eu/sRM10z5U)
 
