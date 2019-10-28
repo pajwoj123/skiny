@@ -1,5 +1,5 @@
 # [abyssal](https://pajwojskin.s-ul.eu/MFOtsBUy)
-![](ss link)
+![](https://osu.ppy.sh/ss/14036926/3709)
 
 # [azerino](https://pajwojskin.s-ul.eu/RvyYiGc8)
 
