@@ -1,6 +1,8 @@
 # [abyssal](https://pajwojskin.s-ul.eu/MFOtsBUy)
 ![](https://osu.ppy.sh/ss/14036926/3709)
 
+# [aesthetic](https://pajwojskin.s-ul.eu/Gw4kYxHe)
+
 # [azerino](https://pajwojskin.s-ul.eu/RvyYiGc8)
 ![](https://osu.ppy.sh/ss/14036931/9acf)
 
@@ -21,6 +23,8 @@
 
 # [default](https://pajwojskin.s-ul.eu/KZYnGLgO)
 
+# [dumii](https://pajwojskin.s-ul.eu/YWX8cloV)
+
 # [elohere instant](https://pajwojskin.s-ul.eu/vdUvBXS8)
 
 # [elohere x spare](https://pajwojskin.s-ul.eu/JGMNs461)
@@ -28,6 +32,8 @@
 # [elohere](https://pajwojskin.s-ul.eu/7KebcUY1)
 
 # [emerald owo](https://pajwojskin.s-ul.eu/DoFAqiqD)
+
+# [gayzmcgee](https://pajwojskin.s-ul.eu/CoZSdJ9l)
 
 # [gn rainbow](https://pajwojskin.s-ul.eu/C4QCPsIY)
 
