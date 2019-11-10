@@ -116,16 +116,16 @@
 ![](https://osu.ppy.sh/ss/14095438/8301)
 
 # [toy](https://pajwojskin.s-ul.eu/5dT9SffJ)
-![]()
+![](https://osu.ppy.sh/ss/14095968/29a4)
 
 # [varvalian](https://pajwojskin.s-ul.eu/c51LWDFL)
-![]()
+![](https://osu.ppy.sh/ss/14095972/6d72)
 
 # [wakson](https://pajwojskin.s-ul.eu/mivZ3SXd)
-![]()
+![](https://osu.ppy.sh/ss/14095975/b5c9)
 
 # [yugen](https://pajwojskin.s-ul.eu/J2BFbfC1)
-![]()
+![](https://osu.ppy.sh/ss/14095980/e9d0)
 
 # [zprait](https://pajwojskin.s-ul.eu/KDsL2fWf)
-![]()
+![](https://osu.ppy.sh/ss/14095985/2dcf)
