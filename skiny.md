@@ -2,7 +2,7 @@
 ![](https://osu.ppy.sh/ss/14036926/3709)
 
 # [aesthetic](https://pajwojskin.s-ul.eu/Gw4kYxHe)
-![](https://osu.ppy.sh/ss/14095057/0dcf)
+![](https://osu.ppy.sh/ss/14095063/d060)
 
 # [azerino](https://pajwojskin.s-ul.eu/RvyYiGc8)
 ![](https://osu.ppy.sh/ss/14036931/9acf)
@@ -10,17 +10,29 @@
 # [bubbleman](https://pajwojskin.s-ul.eu/Z2fNjBjs)
 ![](https://osu.ppy.sh/ss/14036929/0cbf)
 
-# [chitanda blue](https://pajwojskin.s-ul.eu/sRM10z5U)
-
 # [chitanda](https://pajwojskin.s-ul.eu/hw2OpCfs)
+![](https://osu.ppy.sh/ss/14095069/1b6c)
 
-# [cookiezi gruby](https://pajwojskin.s-ul.eu/eOjnhBHb)
-
-# [cookiezi nowy](https://pajwojskin.s-ul.eu/Vva2S5RD)
-
-# [cookiezi pomaranczowy](https://pajwojskin.s-ul.eu/X8LJMJHo)
+# [chitanda blue](https://pajwojskin.s-ul.eu/sRM10z5U)
+![](https://osu.ppy.sh/ss/14095067/fe97)
 
 # [cookiezi](https://pajwojskin.s-ul.eu/D8vCKr4p)
+![](https://osu.ppy.sh/ss/14095078/264b)
+
+# [cookiezi gruby](https://pajwojskin.s-ul.eu/eOjnhBHb)
+![](https://osu.ppy.sh/ss/14095084/c0eb)
+
+# [cookiezi nowy](https://pajwojskin.s-ul.eu/Vva2S5RD)
+![](https://osu.ppy.sh/ss/14095104/1fcb)
+
+# [cookiezi nowszy](https://pajwojskin.s-ul.eu/iQvWttYb)
+![](https://osu.ppy.sh/ss/14095213/5482)
+
+# [cookiezi jeszcze nowszy](https://pajwojskin.s-ul.eu/zTAdy7lr)
+![](https://osu.ppy.sh/ss/14095205/e07e)
+
+# [cookiezi pomaranczowy](https://pajwojskin.s-ul.eu/X8LJMJHo)
+![](https://osu.ppy.sh/ss/14095115/6dda)
 
 # [default](https://pajwojskin.s-ul.eu/KZYnGLgO)
 
