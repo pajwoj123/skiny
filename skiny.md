@@ -2,6 +2,7 @@
 ![](https://osu.ppy.sh/ss/14036926/3709)
 
 # [aesthetic](https://pajwojskin.s-ul.eu/Gw4kYxHe)
+![](https://osu.ppy.sh/ss/14095057/0dcf)
 
 # [azerino](https://pajwojskin.s-ul.eu/RvyYiGc8)
 ![](https://osu.ppy.sh/ss/14036931/9acf)
