@@ -82,7 +82,7 @@
 # [old rafis](https://pajwojskin.s-ul.eu/8E0WUIlB)
 ![](https://osu.ppy.sh/ss/14095364/f909)
 
-# [pajwoj 2019](https://pajwojskin.s-ul.eu/5VQUjXM6)
+# [pajwoj 2019](https://pajwojskin.s-ul.eu/VlBuNfpq)
 ![](https://osu.ppy.sh/ss/14100562/dab7)
 
 # [pajwoj akcel edit](https://pajwojskin.s-ul.eu/ybCb0eRD)
