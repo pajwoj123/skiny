@@ -7,6 +7,9 @@
 # [azerino](https://pajwojskin.s-ul.eu/RvyYiGc8)
 ![](https://osu.ppy.sh/ss/14036931/9acf)
 
+# [bahamete](https://pajwojskin.s-ul.eu/2HAfDHqN)
+![](https://osu.ppy.sh/ss/14097959/656e)
+
 # [bubbleman](https://pajwojskin.s-ul.eu/Z2fNjBjs)
 ![](https://osu.ppy.sh/ss/14036929/0cbf)
 
