@@ -88,6 +88,9 @@ all elements are both normal size and @2x
 # [pajwoj 2019](https://pajwojskin.s-ul.eu/VlBuNfpq)
 ![](https://osu.ppy.sh/ss/14100562/dab7)
 
+# [pajwoj 2021 EPIC!!!!!](https://pajwojskin.s-ul.eu/CPS8RW7b)
+![](https://osu.ppy.sh/ss/15967871/e86c)
+
 # [pajwoj akcel edit](https://pajwojskin.s-ul.eu/ybCb0eRD)
 ![](https://osu.ppy.sh/ss/14095369/b340)
 
@@ -112,6 +115,12 @@ all elements are both normal size and @2x
 # [rohulk stary](https://pajwojskin.s-ul.eu/xWCGx0H6)
 ![](https://osu.ppy.sh/ss/14095415/ab5d)
 
+# [seysant 2](https://pajwojskin.s-ul.eu/29V634kT)
+![](https://osu.ppy.sh/ss/15967878/3e8b)
+
+# [seysant 3](https://pajwojskin.s-ul.eu/Msnxb5pI)
+![](https://osu.ppy.sh/ss/15967881/82b4)
+
 # [shige seoul](https://pajwojskin.s-ul.eu/yid2rFIP)
 ![](https://osu.ppy.sh/ss/14095418/eafc)
 
@@ -132,6 +141,9 @@ all elements are both normal size and @2x
 
 # [wakson](https://pajwojskin.s-ul.eu/mivZ3SXd)
 ![](https://osu.ppy.sh/ss/14095975/b5c9)
+
+# [whitecat](https://pajwojskin.s-ul.eu/EPRRyyHd)
+![](https://osu.ppy.sh/ss/15967884/49d1)
 
 # [yugen](https://pajwojskin.s-ul.eu/J2BFbfC1)
 ![](https://osu.ppy.sh/ss/14095980/e9d0)
