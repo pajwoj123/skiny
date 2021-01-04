@@ -28,6 +28,9 @@ all elements are both normal size and @2x
 # [cookiezi gruby](https://pajwojskin.s-ul.eu/eOjnhBHb)
 ![](https://osu.ppy.sh/ss/14095084/c0eb)
 
+# [cookiezi instant](https://pajwojskin.s-ul.eu/90TgJ6Xp)
+![](https://osu.ppy.sh/ss/16028275/7432)
+
 # [cookiezi nowy](https://pajwojskin.s-ul.eu/Vva2S5RD)
 ![](https://osu.ppy.sh/ss/14095104/1fcb)
 
@@ -88,11 +91,14 @@ all elements are both normal size and @2x
 # [pajwoj 2019](https://pajwojskin.s-ul.eu/VlBuNfpq)
 ![](https://osu.ppy.sh/ss/14100562/dab7)
 
-# [pajwoj 2021 EPIC!!!!!](https://pajwojskin.s-ul.eu/CPS8RW7b)
-![](https://osu.ppy.sh/ss/15967871/e86c)
+# [pajwoj 2021 EPIC!!!!!](https://pajwojskin.s-ul.eu/JB6V2yND)
+![](https://osu.ppy.sh/ss/16028274/1e95)
 
 # [pajwoj akcel edit](https://pajwojskin.s-ul.eu/ybCb0eRD)
 ![](https://osu.ppy.sh/ss/14095369/b340)
+
+# [pajwoj instant](https://pajwojskin.s-ul.eu/n2CwKCU5)
+![](https://osu.ppy.sh/ss/16028264/efcf)
 
 # [rafis cookiezi instant](https://pajwojskin.s-ul.eu/dgO79U8s)
 ![](https://osu.ppy.sh/ss/14095379/4037)
