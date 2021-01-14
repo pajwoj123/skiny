@@ -91,9 +91,6 @@ all elements are both normal size and @2x
 # [pajwoj 2019](https://pajwojskin.s-ul.eu/VlBuNfpq)
 ![](https://osu.ppy.sh/ss/14100562/dab7)
 
-# [pajwoj 2021 EPIC!!!!!](https://pajwojskin.s-ul.eu/JB6V2yND)
-![](https://osu.ppy.sh/ss/16028274/1e95)
-
 # [pajwoj akcel edit](https://pajwojskin.s-ul.eu/ybCb0eRD)
 ![](https://osu.ppy.sh/ss/14095369/b340)
 
