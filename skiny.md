@@ -4,6 +4,9 @@ all elements are both normal size and @2x
 # [abyssal](https://pajwojskin.s-ul.eu/MFOtsBUy)
 ![](https://osu.ppy.sh/ss/14036926/3709)
 
+# [adamqs red instant](https://pajwojskin.s-ul.eu/x3PTEXYT)
+![](https://osu.ppy.sh/ss/16282563/ea9c)
+
 # [aesthetic](https://pajwojskin.s-ul.eu/Gw4kYxHe)
 ![](https://osu.ppy.sh/ss/14095063/d060)
 
