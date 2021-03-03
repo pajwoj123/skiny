@@ -1,6 +1,9 @@
 gameplay elements only  
 all elements are both normal size and @2x
 
+# [404anf](https://pajwojskin.s-ul.eu/nxXzLZ7j)
+![](https://osu.ppy.sh/ss/16284516/ab4d)
+
 # [abyssal](https://pajwojskin.s-ul.eu/MFOtsBUy)
 ![](https://osu.ppy.sh/ss/14036926/3709)
 
