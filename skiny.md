@@ -14,61 +14,61 @@
 [![](https://osu.ppy.sh/ss/14036931/9acf)](https://pajwojskin.s-ul.eu/ISUGVUIH)
 
 # [bahamete](https://pajwojskin.s-ul.eu/oAyO1sWD)
-![](https://osu.ppy.sh/ss/14097959/656e)
+[![](https://osu.ppy.sh/ss/14097959/656e)](https://pajwojskin.s-ul.eu/oAyO1sWD)
 
 # [bubbleman](https://pajwojskin.s-ul.eu/kFhz6YnO)
-![](https://osu.ppy.sh/ss/14036929/0cbf)
+[![](https://osu.ppy.sh/ss/14036929/0cbf)](https://pajwojskin.s-ul.eu/kFhz6YnO)
 
 # [chitanda blue](https://pajwojskin.s-ul.eu/OiRa9x2P)
-![](https://osu.ppy.sh/ss/14095067/fe97)
+[![](https://osu.ppy.sh/ss/14095067/fe97)](https://pajwojskin.s-ul.eu/OiRa9x2P)
 
 # [chitanda](https://pajwojskin.s-ul.eu/DVR9sb3J)
-![](https://osu.ppy.sh/ss/14095069/1b6c)
+[![](https://osu.ppy.sh/ss/14095069/1b6c)](https://pajwojskin.s-ul.eu/DVR9sb3J)
 
 # [cookiezi gruby](https://pajwojskin.s-ul.eu/WPyn1jRM)
-![](https://osu.ppy.sh/ss/14095084/c0eb)
+[![](https://osu.ppy.sh/ss/14095084/c0eb)](https://pajwojskin.s-ul.eu/WPyn1jRM)
 
 # [cookiezi instant](https://pajwojskin.s-ul.eu/KBLH5Qug)
-![](https://osu.ppy.sh/ss/16028275/7432)
+[![](https://osu.ppy.sh/ss/16028275/7432)](https://pajwojskin.s-ul.eu/KBLH5Qug)
 
 # [cookiezi jeszcze nowszy](https://pajwojskin.s-ul.eu/KnszJ3Et)
-![](https://osu.ppy.sh/ss/14095205/e07e)
+[![](https://osu.ppy.sh/ss/14095205/e07e)](https://pajwojskin.s-ul.eu/KnszJ3Et)
 
 # [cookiezi nowszy](https://pajwojskin.s-ul.eu/IVe4aGqC)
-![](https://osu.ppy.sh/ss/14095213/5482)
+[![](https://osu.ppy.sh/ss/14095213/5482)](https://pajwojskin.s-ul.eu/IVe4aGqC)
 
 # [cookiezi nowy](https://pajwojskin.s-ul.eu/WkBN6Tyl)
-![](https://osu.ppy.sh/ss/14095104/1fcb)
+[![](https://osu.ppy.sh/ss/14095104/1fcb)](https://pajwojskin.s-ul.eu/WkBN6Tyl)
 
 # [cookiezi pomaranczowy](https://pajwojskin.s-ul.eu/5R4ZDIFO)
-![](https://osu.ppy.sh/ss/14095115/6dda)
+[![](https://osu.ppy.sh/ss/14095115/6dda)](https://pajwojskin.s-ul.eu/5R4ZDIFO)
 
 # [cookiezi seoul](https://pajwojskin.s-ul.eu/DZPb3suB)
-![](https://osu.ppy.sh/ss/14095418/eafc)
+[![](https://osu.ppy.sh/ss/14095418/eafc)](https://pajwojskin.s-ul.eu/DZPb3suB)
 
 # [cookiezi](https://pajwojskin.s-ul.eu/o91CdXdS)
-![](https://osu.ppy.sh/ss/14095078/264b)
+[![](https://osu.ppy.sh/ss/14095078/264b)](https://pajwojskin.s-ul.eu/o91CdXdS)
 
 # [default](https://pajwojskin.s-ul.eu/ncu0Dhxm)
-![](https://osu.ppy.sh/ss/14095221/9050)
+[![](https://osu.ppy.sh/ss/14095221/9050)](https://pajwojskin.s-ul.eu/ncu0Dhxm)
 
 # [dumii](https://pajwojskin.s-ul.eu/ZbcPf7gB)
-![](https://osu.ppy.sh/ss/14095234/4451)
+[![](https://osu.ppy.sh/ss/14095234/4451)](https://pajwojskin.s-ul.eu/ZbcPf7gB)
 
 # [elohere instant](https://pajwojskin.s-ul.eu/P0sGZI7q)
-![](https://osu.ppy.sh/ss/14095241/b4a7)
+[![](https://osu.ppy.sh/ss/14095241/b4a7)](https://pajwojskin.s-ul.eu/P0sGZI7q)
 
 # [elohere x spare](https://pajwojskin.s-ul.eu/d8h2H0tx)
-![](https://osu.ppy.sh/ss/14095243/e1c6)
+[![](https://osu.ppy.sh/ss/14095243/e1c6)](https://pajwojskin.s-ul.eu/d8h2H0tx)
 
 # [elohere](https://pajwojskin.s-ul.eu/DKRsRSXr)
-![](https://osu.ppy.sh/ss/14095241/b4a7)
+[![](https://osu.ppy.sh/ss/14095241/b4a7)](https://pajwojskin.s-ul.eu/DKRsRSXr)
 
 # [emerald owo](https://pajwojskin.s-ul.eu/uYyC0Hh8)
-![](https://osu.ppy.sh/ss/14095277/4dc2)
+[![](https://osu.ppy.sh/ss/14095277/4dc2)](https://pajwojskin.s-ul.eu/uYyC0Hh8)
 
 # [gayzmcgee](https://pajwojskin.s-ul.eu/xuQHKPiG)
-![](https://osu.ppy.sh/ss/14095287/bc78)
+[![](https://osu.ppy.sh/ss/14095287/bc78)](https://pajwojskin.s-ul.eu/xuQHKPiG)
 
 # [gn rainbow](https://pajwojskin.s-ul.eu/amziADu6)
 ![](https://osu.ppy.sh/ss/14095299/c084)
