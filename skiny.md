@@ -160,5 +160,5 @@
 # [yugen](https://pajwojskin.s-ul.eu/KbgzDmDa)
 [![](https://osu.ppy.sh/ss/14095980/e9d0)](https://pajwojskin.s-ul.eu/KbgzDmDa)
 
-# [zprait](https://pajwojskin.s-ul.eu/jb9CJfMw)
-[![](https://osu.ppy.sh/ss/14095985/2dcf)](https://pajwojskin.s-ul.eu/jb9CJfMw)
+# [zprait](https://pajwojskin.s-ul.eu/RVBRNdrx)
+[![](https://osu.ppy.sh/ss/14095985/2dcf)](https://pajwojskin.s-ul.eu/RVBRNdrx)
