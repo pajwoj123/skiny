@@ -110,7 +110,7 @@
 [![](https://osu.ppy.sh/ss/14095379/4037)](https://pajwojskin.s-ul.eu/9u8EHrlp)
 
 # [rafis kropkowy](https://pajwojskin.s-ul.eu/lYn8tHv1)
-[![](https://osu.ppy.sh/ss/14095381/4740))](https://pajwojskin.s-ul.eu/lYn8tHv1)
+[![](https://osu.ppy.sh/ss/14095381/4740)](https://pajwojskin.s-ul.eu/lYn8tHv1)
 
 # [rafis nowy](https://pajwojskin.s-ul.eu/giTKLT6O)
 [![](https://osu.ppy.sh/ss/14095387/fdd2)](https://pajwojskin.s-ul.eu/giTKLT6O)
