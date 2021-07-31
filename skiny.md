@@ -2,16 +2,16 @@
 [![](https://osu.ppy.sh/ss/16284516/ab4d)](https://pajwojskin.s-ul.eu/Wp3pDYM6)
 
 # [abyssal](https://pajwojskin.s-ul.eu/9ATQ16aY)
-![](https://osu.ppy.sh/ss/14036926/3709)
+[![](https://osu.ppy.sh/ss/14036926/3709)](https://pajwojskin.s-ul.eu/9ATQ16aY)
 
 # [adamqs red instant](https://pajwojskin.s-ul.eu/hSeA5r0i)
-![](https://osu.ppy.sh/ss/16282563/ea9c)
+[![](https://osu.ppy.sh/ss/16282563/ea9c)](https://pajwojskin.s-ul.eu/hSeA5r0i)
 
 # [aesthetic](https://pajwojskin.s-ul.eu/jOCs4T91)
-![](https://osu.ppy.sh/ss/14095063/d060)
+[![](https://osu.ppy.sh/ss/14095063/d060)](https://pajwojskin.s-ul.eu/jOCs4T91)
 
 # [azerino](https://pajwojskin.s-ul.eu/ISUGVUIH)
-![](https://osu.ppy.sh/ss/14036931/9acf)
+[![](https://osu.ppy.sh/ss/14036931/9acf)](https://pajwojskin.s-ul.eu/ISUGVUIH)
 
 # [bahamete](https://pajwojskin.s-ul.eu/oAyO1sWD)
 ![](https://osu.ppy.sh/ss/14097959/656e)
