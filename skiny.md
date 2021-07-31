@@ -1,5 +1,5 @@
 # [404anf](https://pajwojskin.s-ul.eu/Wp3pDYM6)
-![](https://osu.ppy.sh/ss/16284516/ab4d)
+[![](https://osu.ppy.sh/ss/16284516/ab4d)](https://pajwojskin.s-ul.eu/Wp3pDYM6)
 
 # [abyssal](https://pajwojskin.s-ul.eu/9ATQ16aY)
 ![](https://osu.ppy.sh/ss/14036926/3709)
