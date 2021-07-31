@@ -74,7 +74,7 @@
 ![](https://osu.ppy.sh/ss/14095299/c084)
 
 # [idke nowy](https://pajwojskin.s-ul.eu/lx1JRtqZ)
-![](https://osu.ppy.sh/ss/14095326/2866)
+![](https://osu.ppy.sh/ss/16894392/108d)
 
 # [idke](https://pajwojskin.s-ul.eu/Mzmv5Ruu)
 ![](https://osu.ppy.sh/ss/14095305/488e)
