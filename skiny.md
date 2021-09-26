@@ -100,8 +100,8 @@
 # [pajwoj 2020](https://pajwojskin.s-ul.eu/ZTe8PPqL)
 [![](https://osu.ppy.sh/ss/16028264/efcf)](https://pajwojskin.s-ul.eu/ZTe8PPqL)
 
-# [pajwoj 2021](https://pajwojskin.s-ul.eu/1RyXodME)
-[![](https://osu.ppy.sh/ss/16894366/efe5)](https://pajwojskin.s-ul.eu/1RyXodME)
+# [pajwoj 2021](https://pajwojskin.s-ul.eu/D5Zeyrvw)
+[![](https://osu.ppy.sh/ss/16894366/efe5)](https://pajwojskin.s-ul.eu/D5Zeyrvw)
 
 # [rafis cookiezi instant](https://pajwojskin.s-ul.eu/QK2R9dW5)
 [![](https://osu.ppy.sh/ss/14095379/4037)](https://pajwojskin.s-ul.eu/QK2R9dW5)
