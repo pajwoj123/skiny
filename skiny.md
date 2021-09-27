@@ -25,6 +25,9 @@
 # [chitanda](https://pajwojskin.s-ul.eu/DVR9sb3J)
 [![](https://osu.ppy.sh/ss/14095069/1b6c)](https://pajwojskin.s-ul.eu/DVR9sb3J)
 
+# [cookiezi fajny edit](https://pajwojskin.s-ul.eu/BoGIyAmM)
+[![](https://osu.ppy.sh/ss/17103340/6716)](https://pajwojskin.s-ul.eu/BoGIyAmM)
+
 # [cookiezi gruby](https://pajwojskin.s-ul.eu/WPyn1jRM)
 [![](https://osu.ppy.sh/ss/14095084/c0eb)](https://pajwojskin.s-ul.eu/WPyn1jRM)
 
