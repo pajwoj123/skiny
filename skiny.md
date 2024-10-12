@@ -1,16 +1,36 @@
-# [PAJWOJ 2021](https://pajwojskin.s-ul.eu/SwYtFrn3)
-[![](https://osu.ppy.sh/ss/19334813/9182)](https://pajwojskin.s-ul.eu/SwYtFrn3)
+# 10.2024 lazer update: missing sliderends works the same way as in stable
 
-# [PAJWOJ ELOHERE EDIT](https://pajwojskin.s-ul.eu/mrpWXMDk)
-[![](https://osu.ppy.sh/ss/19334814/534b)](https://pajwojskin.s-ul.eu/mrpWXMDk)
+# [cookiezi og](https://pajwojskin.s-ul.eu/6NW3z3HM)
+[![](https://osu.ppy.sh/ss/19355587/fd62)](https://pajwojskin.s-ul.eu/6NW3z3HM)
 
-# [PAJWOJ 2024](https://pajwojskin.s-ul.eu/P9epDOE8)
-[![](https://osu.ppy.sh/ss/19334816/f34d)](https://pajwojskin.s-ul.eu/P9epDOE8)
+# [cookiezi pomaranczowy](https://pajwojskin.s-ul.eu/tYh2ZeMw)
+[![](https://osu.ppy.sh/ss/14095115/6dda)](https://pajwojskin.s-ul.eu/tYh2ZeMw)
 
-# [PAJWOJ 2024 instafade](https://pajwojskin.s-ul.eu/rmXOhopM)
-[![](https://osu.ppy.sh/ss/19334818/856b)](https://pajwojskin.s-ul.eu/rmXOhopM)
+# [elohere](https://pajwojskin.s-ul.eu/DF6bKvJI)
+[![](https://osu.ppy.sh/ss/14095241/b4a7)](https://pajwojskin.s-ul.eu/DF6bKvJI)
 
-# SKINS BELOW ARE NOT UPDATED FOR LAZER (and likely won't ever be; there isn't much to change anyways)
+# [mapping skin](https://pajwojskin.s-ul.eu/dKOjhHve)
+[![](https://osu.ppy.sh/ss/19355590/45be)](https://pajwojskin.s-ul.eu/dKOjhHve)
+
+# [pajwoj 2019](https://pajwojskin.s-ul.eu/9RNGo6Ut)
+[![](https://osu.ppy.sh/ss/14100562/dab7)](https://pajwojskin.s-ul.eu/9RNGo6Ut)
+
+# [pajwoj 2021](https://pajwojskin.s-ul.eu/cgFWGFX1)
+[![]()](https://pajwojskin.s-ul.eu/cgFWGFX1)
+
+# [pajwoj 2021 THICK](https://pajwojskin.s-ul.eu/gbBW0O23)
+[![]()](https://pajwojskin.s-ul.eu/gbBW0O23)
+
+# [pajwoj 2024](https://pajwojskin.s-ul.eu/CLcVEoST)
+[![]()](https://pajwojskin.s-ul.eu/CLcVEoST)
+
+# [pajwoj 2024 instafade](https://pajwojskin.s-ul.eu/Iq3qMTnh)
+[![]()](https://pajwojskin.s-ul.eu/Iq3qMTnh)
+
+# [yugen](https://pajwojskin.s-ul.eu/pXkzM7AU)
+[![](https://osu.ppy.sh/ss/14095980/e9d0)](https://pajwojskin.s-ul.eu/pXkzM7AU)
+
+# SKINS BELOW ARE NOT UPDATED FOR LAZER (and likely won't ever be; there isn't that much to change anyways)
 
 # [404anf](https://pajwojskin.s-ul.eu/Wp3pDYM6)
 [![](https://osu.ppy.sh/ss/16284516/ab4d)](https://pajwojskin.s-ul.eu/Wp3pDYM6)
