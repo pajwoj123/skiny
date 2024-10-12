@@ -16,16 +16,16 @@
 [![](https://osu.ppy.sh/ss/14100562/dab7)](https://pajwojskin.s-ul.eu/9RNGo6Ut)
 
 # [pajwoj 2021](https://pajwojskin.s-ul.eu/cgFWGFX1)
-[![]()](https://pajwojskin.s-ul.eu/cgFWGFX1)
+[![](https://osu.ppy.sh/ss/19355594/306c)](https://pajwojskin.s-ul.eu/cgFWGFX1)
 
 # [pajwoj 2021 THICK](https://pajwojskin.s-ul.eu/gbBW0O23)
-[![]()](https://pajwojskin.s-ul.eu/gbBW0O23)
+[![](https://osu.ppy.sh/ss/19355593/0f13)](https://pajwojskin.s-ul.eu/gbBW0O23)
 
 # [pajwoj 2024](https://pajwojskin.s-ul.eu/CLcVEoST)
-[![]()](https://pajwojskin.s-ul.eu/CLcVEoST)
+[![](https://osu.ppy.sh/ss/19355595/8c17)](https://pajwojskin.s-ul.eu/CLcVEoST)
 
 # [pajwoj 2024 instafade](https://pajwojskin.s-ul.eu/Iq3qMTnh)
-[![]()](https://pajwojskin.s-ul.eu/Iq3qMTnh)
+[![](https://osu.ppy.sh/ss/19355597/f039)](https://pajwojskin.s-ul.eu/Iq3qMTnh)
 
 # [yugen](https://pajwojskin.s-ul.eu/pXkzM7AU)
 [![](https://osu.ppy.sh/ss/14095980/e9d0)](https://pajwojskin.s-ul.eu/pXkzM7AU)
