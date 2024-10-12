@@ -10,6 +10,8 @@
 # [PAJWOJ 2024 instafade](https://pajwojskin.s-ul.eu/rmXOhopM)
 [![](https://osu.ppy.sh/ss/19334818/856b)](https://pajwojskin.s-ul.eu/rmXOhopM)
 
+# SKINS BELOW ARE NOT UPDATED FOR LAZER (and likely won't ever be; there isn't much to change anyways)
+
 # [404anf](https://pajwojskin.s-ul.eu/Wp3pDYM6)
 [![](https://osu.ppy.sh/ss/16284516/ab4d)](https://pajwojskin.s-ul.eu/Wp3pDYM6)
 
